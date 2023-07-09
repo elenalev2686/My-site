@@ -1,7 +1,7 @@
 # Мой сайт. 
 **Лузина Елена Владимировна**
 
-! [IMG_8909.jpeg] (https://disk.yandex.ru/i/fUm4jsqtf9xQAQ)
+![IMG_8909.jpeg] (https://downloader.disk.yandex.ru/preview/997643d93899ec5dd6fc31edb5a2f465164a3ef289dfb124e720873ba3331d1a/64aadacb/sFOYBx1fwC4_nosd-W_nkGZQ0ojDLwKP3P5dsQAls-0MvfN0t0Ehkt046NKq7FZHBWjIus-YVoO7RuZDQUSHLg%3D%3D?uid=0&filename=IMG_8909.jpeg&disposition=inline&hash=&limit=0&content_type=image%2Fjpeg&owner_uid=0&tknv=v2&size=2048x2048)
 
 Родилась 26 сентября 1986г.
 
