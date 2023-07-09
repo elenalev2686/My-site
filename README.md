@@ -1,7 +1,7 @@
 # Мой сайт. 
 **Лузина Елена Владимировна**
 
-![IMG_8909.jpeg](![Alt text](IMG_8909-2.jpeg))
+![IMG_8909.jpeg](https://disk.yandex.ru/i/Ypa_gTs0VesckA)
 
 Родилась 26 сентября 1986г.
 
